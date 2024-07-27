@@ -1,6 +1,6 @@
 * It's ok to cuddle with me without asking!!
 * It is not ok to copy my skins. Please ask me in whispers before taking inspo off my skins.
-* Please dont kiss me unless if you are close, on my friend list, or if I'm in a joke/troll skin (the low quality ones). If you are a stranger I will block you.
+* Please dont kiss me unless if you a close friend of mine. If you are a stranger I will block you.
 * I am really sorry if I get weird or annoying or unrespectful of boundaries. I do not understand subtle hints and I need to be told that I am being unpleasing. Again, I am sorry.
 * DNI if I have Busy as my status.
 
